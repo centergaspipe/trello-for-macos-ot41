@@ -1,4 +1,4 @@
-
+Trello for macOS advanced Macro: database templates & offline access offers the most advanced Trello for macOS macro, with database templates and offline access. Ideal for
 
 
 
